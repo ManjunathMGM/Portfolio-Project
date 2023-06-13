@@ -9,6 +9,6 @@ Click [here](https://htmlpreview.github.io/?https://github.com/ManjunathMGM/Port
 > Batch of 2026.
 
 
-Feel free to reach me out - <br />
+Feel free to reach out - <br />
 You can mail me out [here](mailto:mm153@snu.edu.in) or [text me](https://www.instagram.com/man.ju.nath/) here. <br />
 :)
